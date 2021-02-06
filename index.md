@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my webpage
 
-I'm glad you are here. I plan to talk about ...
+Welcome young Kings and Queens to the next step in LIFE!
